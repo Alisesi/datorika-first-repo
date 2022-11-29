@@ -1,5 +1,8 @@
 
 # specifikācija
+dscsddscdsdscdfsdsdsdscsafvadfvdv
+fvlsfnvkjfvn
+jddfvbvkjfl;sv
 
 ## Risinājuma apraksts
 
